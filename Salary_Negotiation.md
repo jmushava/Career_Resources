@@ -3,7 +3,7 @@
 ## Negotiating salary shows your employer that you are confident in your abilities and know your worth.
 
 
-###Know Your Market Value
+### Know Your Market Value
 
 Consult online tools using the following three points:
  1. Industry
