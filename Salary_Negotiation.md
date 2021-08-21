@@ -6,9 +6,10 @@
 ## Identify Your Career Values and Non-Negotiables
 
 Know Your Market Value
-    Consult online tools using the following three points:
-        1. Industry
-        2. Job title
-        3. Location
+
+Consult online tools using the following three points:
+ 1. Industry
+ 2. Job title
+ 3. Location
 
         
