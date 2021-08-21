@@ -10,4 +10,6 @@ Consult online tools using the following three points:
  2. Job title
  3. Location
 
+Eval and prep for salary negotiations
+
         
